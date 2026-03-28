@@ -16,7 +16,7 @@ Shelly,Vee,sprout, dazzle , brightney and squirm! . 🐚🍓🌼📺🎭🐛💡
 🍓🍰 - i wouldnt admit infront of him but - i prefer Cosmo baking pver Sprout one-.. it not because He bad or something it just i have preferance i guess?… but it wont make me like Sprout less then cosmo! 
 ![cosmo and sprout!](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/56efd16808cedf46f0f87ad5d37f9f028ae023e1/IMG_1580.jpeg)
 
-🌼🌈 - i missed how old days had been actually , when i first came i was a bit scared and nervous and it when i met dandy , my best friend , we mostly watched the star together under this tree under the gardenview! haha.. what a good memorie!.... i hoped we hang out more as we used to, but now im less Nervous , i guess it a start?… 
+🌼🌈 - i missed how old days had been actually , when i first came i was a bit scared and nervous and it when i met dandy , my best friend , we mostly watched the star together under this tree under the gardenview! haha.. what a good memorie!.... i hoped we hang out more as we used to...  now im less Nervous , i guess it a start?… 
 ![Dandy and astro.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/cff8f0237f19a7144b31fca24842b04b556d3790/IMG_1585.jpeg)
 
 🧑🏻💙- sometimes i miss Austin i will admit. when the kid in garden view goes way to far- . even if in rules there was no photographis mentioned. but it didnt bother me this much. i knew i had Austin along my side it made me feel Happier.. ... i hope he will come back and read this of course. you awfully missed me.
