@@ -4,7 +4,7 @@
 ![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/0ab2af2854c128fa0aab506422822315f4199275/IMG_1602.jpeg)
 (this is the match Pfp for my friendos i guess :) ! i hope i get to match with someone )
 
-🌟 - i have a lot of friend and im very ungratefull for them! they are : Dandy, 
+🌟 - i have a lot of friend and im very gratefull for them! they are : Dandy, 
 Shelly,Vee,sprout, dazzle , brightney and squirm! . 🐚🍓🌼📺🎭🐛💡.
 
 
