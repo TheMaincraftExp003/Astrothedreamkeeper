@@ -8,7 +8,7 @@ Shelly,Vee,sprout, dazzle , brightney and squirm! .
 
 
 💡🎭📖 -im also part of the Book club which there is brightney and dazzle there too..! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
-
+![reading books](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/9e3cac7a888ff6583ebacc1cfce50d5b035af434/IMG_1578.jpeg)
 
 💤 - i like comfy spots , i usually Use my Star pillow it pretty confortable wouldnt lie.! i do not really sleep at night i get into the toons dreams to check if they doing okay !. 
 
