@@ -5,7 +5,7 @@
 (this is the match Pfp for my friendos i guess :) ! i hope i get to match with someone )
 
 🌟 - i have a lot of friend and im very gratefull for them! they are : Dandy, 
-Shelly,Vee,sprout, dazzle , brightney and squirm! . 🐚🍓🌼📺🎭🐛💡.
+Shelly,Vee,sprout, dazzle , brightney and squirm!i'v alos have more friend of course but i guess i just say a few or it will be a long list.. 🐚🍓🌼📺🎭🐛💡.
 
 
 💡🎭📖 -im also part of the Book club which there is brightney and dazzle there too..! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
