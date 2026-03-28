@@ -2,6 +2,7 @@
 
 🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, also if anyone had a problem with me and then apologies well this is all story behind us and  forgotten.
 ![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/0ab2af2854c128fa0aab506422822315f4199275/IMG_1602.jpeg)
+(this is the match Pfp for my friendos i guess :) ! i hope i get to match with someone )
 
 🌟 - i have a lot of friend and im very ungratefull for them! they are : Dandy, 
 Shelly,Vee,sprout, dazzle , brightney and squirm! . 🐚🍓🌼📺🎭🐛💡.
