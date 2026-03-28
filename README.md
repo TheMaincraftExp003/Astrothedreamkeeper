@@ -1,9 +1,10 @@
 ## ''Sleep well''.
 
 🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia
-![Astro]()
+![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d98b41223264935ac4e8dddaaf356936781c2182/IMG_1581.jpeg)
 
-🌟 - i have a lot of friend and im very ungratefull for them! they are : Dandy, Shelly,Vee,sprout, dazzle , brightney and squirm! . 
+🌟 - i have a lot of friend and im very ungratefull for them! they are : Dandy, 
+Shelly,Vee,sprout, dazzle , brightney and squirm! . 
 
 
 💡🎭📖 -im also part of the Book club which there is brightney and dazzle there too..! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
