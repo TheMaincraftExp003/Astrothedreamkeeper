@@ -14,7 +14,7 @@ Shelly,Vee,sprout, dazzle , brightney and squirm! .
 
 
 🍓🍰 - i wouldnt admit infront of him but - i prefer Cosmo baking pver Sprout one-.. it not because He bad or something it just i have preferance i guess?… but it wont make me like Sprout less then cosmo! 
-
+![cosmo and sprout!](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/56efd16808cedf46f0f87ad5d37f9f028ae023e1/IMG_1580.jpeg)
 
 🌼🌈 - i missed how old days had been actually , when i first came i was a bit scared and nervous and it when i met dandy , my best friend , we mostly watched the star together under this tree under the gardenview! haha.. what a good memorie!.... i hoped we hang out more as we used to, but now im less Nervous , i guess it a start?… 
 
