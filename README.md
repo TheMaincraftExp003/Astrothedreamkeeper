@@ -1,6 +1,6 @@
 ## ''Sleep well''.
 
-🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, also if anyone had a problem with me and then apologies well this os all story behind us and  forgotten.
+🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, also if anyone had a problem with me and then apologies well this is all story behind us and  forgotten.
 ![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d98b41223264935ac4e8dddaaf356936781c2182/IMG_1581.jpeg)
 
 🌟 - i have a lot of friend and im very ungratefull for them! they are : Dandy, 
