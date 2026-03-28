@@ -23,7 +23,7 @@ Shelly,Vee,sprout, dazzle , brightney and squirm! .
 
 
 🎵🌸🎀🌼- I had trouble helping My friend with there nightmares lately and the worst one was boxten, Glisten, Dandy and bassie. i hope they did okay.. and i hoped i could fix it im sorry if you got to a nightmare cuz i couldnt solve the problem..
-![Bad dream.]()
+![Bad dream.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d18d545f8434b4d5b41c360e91e1f1368f575977/IMG_1583.jpeg)
 
 
 One day at daycare, I was walking down the halls looking for a comfortable place to rest, but suddenly I heard soft whispers and the sound of tears. So I headed towards the source of the noise until I saw Squirm. He was crying, but this time it seemed sadder than usual. It was as if Brightney had taken him away from the book group. I sat next to him and read him a short story. And when I turned around to see him, he had fallen asleep. "Goodnight, Squirm. I know it's not your fault and that you can't help it. Please don't cry..."
