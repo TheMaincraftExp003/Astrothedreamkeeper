@@ -43,8 +43,7 @@ i enjoye the mains toons reunion actually we can pass time together even if it i
 
 ![oh it me..](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/ae1a6653bd72d5fbbf9d9bf52148451f653b55db/IMG_1706.jpeg)
 
-![why..](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/c84266632eedde28fa8cf14e6250bf38303bd985/IMG_1707.jpeg
-...
+![why..](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/c84266632eedde28fa8cf14e6250bf38303bd985/IMG_1707.jpeg)
 
 i feel weird. Im constally tired. and everything i see is red.. my head hurts a lot.. every time i see a toon.. they talking to me. rudly .. everytime they does that. i want to hurt them so bad.. 
 i cry constally , my shames are revealed i rippied my blanket.. 
