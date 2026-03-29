@@ -49,4 +49,5 @@ i feel weird. Im constally tired. and everything i see is red.. my head hurts a 
 i cry constally , my shames are revealed i rippied my blanket.. 
 
 your my friend.. but - why i want to hurt you so bad..?
+
 …[those meaning is that astro nightmare constally. he hallucinate his friend being rude to him when they're not, they just looking at him terrified. which it bring him to be violent. Astro do not give dreams anymore. he give you nightmare about the insecurity of the toons.]…
