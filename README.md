@@ -1,9 +1,9 @@
 ## ''Astro diary.📖''.
 [you can not read if it too long ! btw you can also support me by follwing meh thanks you :3]
 
-🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, also if anyone had a problem with me and then apologies well this is all story behind us and  forgotten.(for specisific friends . :pls do not say i hate you or we not friend anymore cuz i dont cuddle you often. it just i try to give attention to most of my friend if i do that come to me instead of saying rude stuff. they offend me a lot and i get unsecuritys cause of disseapointing..)
+🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, im a shy person also i dont really approach others peoples,i always apologies if i made you upset (for specisific friends . : i try my best to be better im sorry that i dont c+h you guys a lot..)
 ![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/0ab2af2854c128fa0aab506422822315f4199275/IMG_1602.jpeg)
-(this is the match Pfp for my best friendos i guess :) ! i hope i get to match with someone )
+(this is the match Pfp if someone even care >3<) 
 
 🌟 - i have a lot of friend and im very gratefull for them! they are : Dandy, 
 Shelly,Vee,sprout, dazzle , brightney and squirm!i'v also have more friend of course but i guess i just say a few or it will be a long list.. 🐚🍓🌼📺🎭🐛💡.
