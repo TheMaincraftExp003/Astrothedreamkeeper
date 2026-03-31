@@ -11,7 +11,7 @@ This is his burden to bear..🌙
 (this is the match Pfp if someone even care >3<) 
 
 🌟 - i have a lot of friend and im very gratefull for them! they are : Dandy, 
-Shelly,Vee,sprout, dazzle , brightney and squirm!i'v also have more friend of course but i guess i just say a few or it will be a long list.. 🐚🍓🌼📺🎭🐛💡.
+Shelly,Vee,sprout, dazzle , brightney , boxten and squirm!i'v also have more friend of course but i guess i just say a few or it will be a long list.. 🐚🍓🌼📺🎭🐛💡🎵.
 
 
 💡🎭📖 -im also part of the Book club which there is brightney and razzle and dazzle , but i prefer say only dazzle sense razzle not in those interest.! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
