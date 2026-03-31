@@ -28,7 +28,7 @@ Shelly,Vee,sprout, dazzle , brightney , boxten and squirm!i'v also have more fri
 now im less Nervous , i guess it a start?… 
 ![Dandy and astro.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/cff8f0237f19a7144b31fca24842b04b556d3790/IMG_1585.jpeg)
 
-🧑🏻💙- sometimes i miss Austin i will admit. when the kid in garden view goes way to far- . even if in rules there was no photographis mentioned.well Austin came and protecting me. but it didnt bother me this much when the kids does that.i knew i had Austin along my side it made me feel Happier.. and safer... i hope he will come back and read this of course. you awfully missed me.
+🧑🏻💙- sometimes i miss Austin i will admit. when the kid in garden view goes way to far- . even if in rules there was no photographis around me mentioned.well Austin came and protecting me. but it didnt bother me this much when the kids does that.i knew i had Austin along my side it made me feel Happier.. and safer... i hope he will come back and read this of course. you awfully missed me.
 ![Austin come back soon.](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/75f241b38d5d11828d7a970d02ac0edd8e93b876/IMG_1604.jpeg)
 
 🎵🌸🎀🌼- I had trouble helping My friend with these nightmares lately and the worst one was boxten, Glisten, Dandy and bassie. i hope they did okay.. and i hoped i could fix it im sorry if you got to a nightmare cuz i couldnt solve the problem..
