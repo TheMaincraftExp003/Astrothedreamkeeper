@@ -12,7 +12,7 @@ This is his burden to bear..🌙
                          '*.       °~  . .Dear diary. .     .~°         .*'
                             
 🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, im a shy person also i dont really approach others peoples,i always apologies if i made you upset (for specisific friends . : i try my best to be better im sorry that i dont c+h you guys a lot..)
-![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/0ab2af2854c128fa0aab506422822315f4199275/IMG_1602.jpeg)
+![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/7e52d1fbceae7bc2dbedf67f3dc4c50d2b23a0a6/Sans%20titre%20165_20260405010417.png)
 .
 
 🌟 - i have a lot of friend and im very gratefull for them! they are : Dandy, 
