@@ -10,11 +10,9 @@ This is his burden to bear..🌙
 
                            
                          '*.       °~  . .Dear diary. .     .~°         .*'
-                            
-🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, im a shy person also i dont really approach others peoples,i always apologies if i made you upset (for specisific friends . : i try my best to be better im sorry that i dont c+h you guys a lot..)
 ![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/7e52d1fbceae7bc2dbedf67f3dc4c50d2b23a0a6/Sans%20titre%20165_20260405010417.png)
 .
-
+🌙- Hello dear im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, im a shy person also i dont really approach others peoples,i always apologies if i made you upset (for specisific friends . : i try my best to be better im sorry that i dont c+h you guys a lot..)
 🌟 - i have a lot of friend and im very gratefull for them! they are : Dandy, 
 Shelly,Vee,sprout, dazzle , brightney , boxten and squirm!i'v also have more friend of course but i guess i just say a few or it will be a long list.. 🐚🍓🌼📺🎭🐛💡🎵.
 -💡🎭📖 -im also part of the Book club which there is brightney and razzle and dazzle , but i prefer say only dazzle sense razzle not in those interest.! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
