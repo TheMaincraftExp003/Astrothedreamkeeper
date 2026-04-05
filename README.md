@@ -13,7 +13,7 @@
 Shelly,Vee,sprout, dazzle , brightney , boxten and squirm!i'v also have more friend of course but i guess i just say a few or it will be a long list.. 🐚🍓🌼📺🎭🐛💡🎵.
 -💡🎭📖 -im also part of the Book club which there is brightney and razzle and dazzle , but i prefer say only dazzle sense razzle not in those interest.! i love reading about astronomie and astronologie you could think it the same thing but a bit different!. 
 💤 - i like comfy spots , i usually Use my Star pillow it pretty confortable i wouldnt lie.! i do not really sleep at night i get into the toons dreams to check if they doing okay !. so that why i often sleep in daylight.!
-![club book!]()
+![club book!](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/20ec0709a926cbb7970fcab799af4844362f21bb/Sans%20titre%20165_20260405044359.jpeg)
 
 🍓🍰 - i wouldnt admit infront of him but - i prefer Cosmo baking over Sprout one-.. it not because He bad or something it just i have preferance i guess?… but it wont make me like Sprout less then cosmo
 
