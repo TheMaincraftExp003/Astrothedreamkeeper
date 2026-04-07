@@ -5,7 +5,7 @@
 
                            
                          '*.       °~  . .Dear diary. .     .~°         .*'
-![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/ef0702e676e8b62a9c86610c7b2d800a91d5eeff/Sans%20titre%20186_20260407165827.png)
+![Astro](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/f28c1b0bacfe347a0fa0688df7b2893657687134/Sans%20titre%20186_20260407165827.jpeg)
 .
 🌙-dear diary.. im Astro novalite one of the mains toons i do rater be called Astro simply. im a pretty Kind person. i think ? and i love conforting my friends when they need too! , im also called a Therapist friend . photophobia, im a shy person also i dont really approach others peoples,i always apologies if i made you upset (for specisific friends . : i try my best to be better im sorry that i dont c+h you guys a lot..)
 
