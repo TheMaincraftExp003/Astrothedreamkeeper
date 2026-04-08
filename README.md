@@ -1,4 +1,4 @@
-## ''Astro diary.📖''.![Moon](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/8b23194e6beebc1224687af0d711eb01f1f9cfb4/2BCAD0BF-CD0D-4A60-889E-30F6E305CC2B.gif)
+## ''Astro diary.📖''.
 [you can not read if it too long ! btw you can also support me by follwing meh if you want!]
 ![Astro bateners](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d5008581edbddbac961641aa2b8b0239672e6d06/20260408-1_2026_04_08_21_29_32.mov)      
                ୨୧' * . .        '.   💤 [Astro pillow] 🌙  .'            .   .  *'୨୧
