@@ -19,6 +19,8 @@ Shelly,Vee,sprout, dazzle , brightney , boxten and squirm!(and much more!)
 🧑🏻💙- sometimes i miss Austin i will admit. when the kid in garden view goes way to far- . even if in rules there was no photographis around me mentioned.well Austin came and protecting me. but it didnt bother me this much when the kids does that.i knew i had Austin along my side it made me feel Happier.. and safer... i hope he will come back and read this of course. you awfully missed me
 
 i enjoye the mains toons reunion actually we can pass time together even if it in obligation , I like them actually. right afters reunions we often Go picnic,Or oderes sometimes while chit chatting .. of course i dont talk often i prefer lisning.! 
+
+im born the 12 aguste. I heard there were shooting stars in this special day. i hope i could watch them with my friends. 💤.
 💤 
 ![That was all i hope you enjoyed reading , also i prefer canon reaction over the fanon one. erm they pmo anyway.if you did of course you can follow me to support me or report if you dont like me i dont know actually anyway bye! sleep well littel star]
 ![Star pillow](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/c44e4ac89220b7d4b6792ad9c26f1cdf34d0b1ac/IMG_2239.jpeg)
