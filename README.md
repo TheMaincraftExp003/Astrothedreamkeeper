@@ -25,7 +25,8 @@ im born the 12 aguste. I heard there were shooting stars in this special day. i 
 ![Star pillow](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/c44e4ac89220b7d4b6792ad9c26f1cdf34d0b1ac/IMG_2239.jpeg)
 
 knowing more about me ! : im a 100% French but i can talk English i guess? .i get unconfortable eazily if im tragect for forced ship or C+h me Even if i dont know you if so you can notice it when i hide behind my friends.(if uou did even care >3<) 🇫🇷
-
+# 1 Astro fan 
+im a multi shipper heeh ! : 
                ୨୧' * . .        '.   💤 [Astro pillow] 🌙  .'            .   .  *'୨୧
 
                            
