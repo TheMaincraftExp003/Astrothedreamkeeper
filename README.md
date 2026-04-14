@@ -1,6 +1,6 @@
 ## ''Astro diary.📖''.── ⋆⋅☆⋅⋆ ──
 
-[you can not read if it too long ! btw you can also support me by follwing meh if you want! at the end pf the Read me there is a match pfp :P!]
+[you can not read if it too long ! btw you can also support me by follwing meh if you want! at the end of the Read me there is a match pfp :P!]
 ![Astro bateners](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/d5008581edbddbac961641aa2b8b0239672e6d06/20260408-1_2026_04_08_21_29_32.mov)      
                ୨୧' * . .        '.   💤 ![Astro the nervous Moon.] 🌙  .'            .   .  *'୨୧
 
