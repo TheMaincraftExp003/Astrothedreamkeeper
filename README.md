@@ -37,4 +37,4 @@ knowing more about me ! : im a 100% French but i can talk English i guess? .i ge
 ![Matching Pfp!](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/2a0725ab026f0b58eb88deb0e5f70141302dc6ac/IMG_2530.jpeg)
 ![Matching pfp!](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/44a49502a1e585134f248801213281a08d25e283/IMG_2531.jpeg)
 congratulation you made it to the end ! you can whisper me if you do like int!
-⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦( or if your one of my friend you can snatch one of those pfp!it doesnt bother me at all it was place here for it!)
