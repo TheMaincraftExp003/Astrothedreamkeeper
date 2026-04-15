@@ -25,7 +25,7 @@ im born the 12 aguste. I heard there were shooting stars in this special day. i 
 ![Star pillow](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/c44e4ac89220b7d4b6792ad9c26f1cdf34d0b1ac/IMG_2239.jpeg)
 
 knowing more about me ! : im a 100% French but i can talk English i guess? .i get unconfortable eazily if im tragect for forced ship or C+h me Even if i dont know you if so you can notice it when i hide behind my friends.(if uou did even care >3<) 🇫🇷
-# 1 Astro fan 
+
 
                ୨୧' * . .        '.   💤 [Astro pillow] 🌙  .'            .   .  *'୨୧
 
@@ -36,3 +36,13 @@ knowing more about me ! : im a 100% French but i can talk English i guess? .i ge
 ![Astro do not interact!](https://github.com/Astrothedreamkeeper/Astrothedreamkeeper/blob/9804041fd1dd68621f34c31488f838da868b7733/Nom%20du%20projet%205.mov)
 
                                   ![ DO NOT INTERACT ]!
+
+🅾️: - The dandy world maps supporter
+⛔️: - Adult x Minor toon.
+⛔️: - Animal x Adult/kid toon.
+⛔️:- force shipper
+⛔️:- Hazbin hotel/helluva boss.
+⛔️:- inappropriate.
+⛔️:- rude/toxic players 
+⛔️:- Moonshell and moonvision ( i dont like those ship sorry )
+⛔️:- Braint rotted kid 
