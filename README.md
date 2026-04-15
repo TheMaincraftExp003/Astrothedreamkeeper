@@ -37,19 +37,18 @@ knowing more about me ! : im a 100% French but i can talk English i guess? .i ge
 
                                   ![ DO NOT INTERACT ]!
 
-⛔️: - The dandy world maps supporter.                    ✅:- you may be freaky only in funny way 
+⛔️: - The dandy world maps supporter.                  
 
-⛔️: - Adult x Minor toon.                                ✅:- w2i ,ask for c+h unless friend, already                                                               know me
+⛔️: - Adult x Minor toon.                       
 
-⛔️: - Animal x Adult/kid toon.                           ✅:- can cover me when im the one going                                                                    behind
+⛔️: - Animal x Adult/kid toon.                                                                              
 
-⛔️:- forced shipper.                                     ✅:- Whisper for ship ( im not really                                                                      confortable with it so do not )
+⛔️:- forced shipper .
 
-⛔️:- Hazbin hotel/helluva boss.                          ✅:- Any others fandom ( basically hh and hb                                                               are kinda disgusting. srry.) 
 
-⛔️:- inappropriate.                                      ✅:- Healthy .
+⛔️:- Hazbin hotel/helluva boss.                                                                           
+⛔️:- inappropriate.                                     
 
-⛔️:- rude/toxic players                                  ✅:- Kind, ig and you can be rude as long is                                                               taken as a joke 
+⛔️:- rude/toxic players                              
 
-⛔️:- Braintrotted kid                                   ✅: immature and mature i dont mind as long                                                               your not brainrotted
-⛔️:- Moonshell and Moonvision.                          ✅: Moonberry, Moonflower, 
+⛔️:- brainrotted kid
